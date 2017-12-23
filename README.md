@@ -1,2 +1,0 @@
-# first
-github尝鲜
